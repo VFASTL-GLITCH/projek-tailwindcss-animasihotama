@@ -1,1 +1,1 @@
-Face The SIN, Save The E.g.O
+Face The SIN, Save The E.G.O
